@@ -13,8 +13,8 @@ Gems are used to purchase special items in the game. With gems, you can:
 - Open special offers in the shop.
 - Purchase coins and power points.
 - Get new brawlers faster.
-- Tips and Tricks ✅🌐Click Here Free Now
-- Tips and Tricks ✅🌐Click Here Free Now
+- #[Tips and Tricks ✅🌐Click Here Free Now](https://lumon.slotkinov.com/brawl-stars-gems/)
+- #[Tips and Tricks ✅🌐Click Here Free Now](https://lumon.slotkinov.com/brawl-stars-gems/)
 
 Since gems are valuable, players always want more of them. Thankfully, there are legal ways to get gems for free.
 
